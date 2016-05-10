@@ -1,3 +1,3 @@
-# chelimin.github.io
 
-hosted on (www.chelimin.com)
+
+[Personal Website of Catherine He](http://www.chelimin.com/)
